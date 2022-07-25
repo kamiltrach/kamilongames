@@ -1,0 +1,2 @@
+# kamilongames
+Strona dla widzow
